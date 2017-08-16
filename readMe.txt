@@ -1,0 +1,1 @@
+Hi my name is Seth, I am Currently attending the coding dojo
